@@ -1,1 +1,0 @@
-# vehymy.github.io
